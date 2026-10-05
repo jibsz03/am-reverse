@@ -14,6 +14,8 @@
 
 **team reverse — neo:** ansari • zenno
 
+<a href="https://whatsapp.com/channel/0029Vb6hVYK8V0tkiz4bKs0N"><img src="https://img.shields.io/badge/Join%20Channel%20Neo-25D366?logo=whatsapp&logoColor=white" alt="Join Channel Neo"></a>
+
 </div>
 
 > ⚠️ **UNOFFICIAL — bukan alat resmi dari Alight Creative.**
